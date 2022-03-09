@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @miguel-coser
-- 👀 I’m interested in 4 jogar ps  
+- 👀 I’m interested in jogar ps4
 - - 🌱 I’m currently learning progamação
 - 💞️ I’m looking to  amigos
 - 📫 como chegar até mim:não venha até mim
